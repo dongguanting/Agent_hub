@@ -1,8 +1,8 @@
 # Agent_hub 二群
 Discussion for Agents （一起讨论Agent方向前沿进展）
 
-入群请写清楚【小红书而来】+【个人信息，机构，姓名等】
+入群请务必写清楚【小红书】+【机构】+【学校】+【姓名】
 
 如果已经在一群的朋友可以不用进群啦～
 
-<img width="334" height="414" alt="image" src="https://github.com/user-attachments/assets/8165f89d-7390-4f5e-b2e3-e027e7eb28e0" />
+![dfbc4fbde925e29608060dd26e1b9841](https://github.com/user-attachments/assets/2530f89e-f0a6-4b3d-b550-5cda078a668b)
