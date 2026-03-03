@@ -5,4 +5,4 @@ Discussion for Agents （一起讨论Agent方向前沿进展）
 
 如果已经在一群的朋友可以不用进群啦～
 
-![dfbc4fbde925e29608060dd26e1b9841](https://github.com/user-attachments/assets/2530f89e-f0a6-4b3d-b550-5cda078a668b)
+![19999c2c1e9dab3df78135124336fedb](https://github.com/user-attachments/assets/c79567fb-f0cb-436b-bb73-567465e98da2)
