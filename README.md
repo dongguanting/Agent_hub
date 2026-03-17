@@ -7,4 +7,4 @@ Discussion for Agents （一起讨论Agent方向前沿进展）
 
 如果下方的微信码失效，请备注【机构/学校】+【引用】+【姓名】直接加我的v: dongguanting990611，如果审核通过我会直接拉您进群～
 
-![19999c2c1e9dab3df78135124336fedb](https://github.com/user-attachments/assets/c79567fb-f0cb-436b-bb73-567465e98da2)
+![2e8bde4bf488fb7523eb28139d4ce943](https://github.com/user-attachments/assets/c65588c0-6b54-40cd-8ba7-d79c66d7592b)
